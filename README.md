@@ -1,0 +1,2 @@
+- Harassment as defined by law will not be allowed. Questioning is not harassment. Repeated questioning after an individual has stated their desire for disengagement is harassment. The difference is clear.
+- Censorship will not be permitted. Seeking to silence an individual voicing constructive opinions will not be allowed. Silencing vitriol is not censorship. The difference is clear.
